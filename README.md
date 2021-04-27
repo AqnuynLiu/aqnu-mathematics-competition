@@ -1,0 +1,1 @@
+# aqnu-mathematics-competition
